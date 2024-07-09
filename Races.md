@@ -43,4 +43,4 @@ The Itaro generally are found in towns and cities, they like to be around people
 hmm well they aren't really Aarakocra but are? Basically i don't like the physiology of how the Aarakocra are so these are more like the Sathari from star wars. There wings are actually there arms, they have bigger builds and more varied beaks and beak sizes. They cannot fly and but can use there arms to glide/float if they are already in the air. They have alot more vibrant and bright feathers. 
 
 They generally live in packs but many have spread out across the land living a trader's, mercenaries or even settling down as smiths or merchants.
-![[Sathari.webp|{width=10%]]
+https://static.wikia.nocookie.net/starwars/images/c/c5/Sathari.png/revision/latest?cb=20151013122510
